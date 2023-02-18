@@ -1,1 +1,1 @@
-# 2024
+Gayatri mantr 
